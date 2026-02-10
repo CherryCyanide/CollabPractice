@@ -1,6 +1,6 @@
 Twas brilliant, and the gliny gloves...
       Did jyre and gimble in the wabe :3c
-All mimsy were the borogoves,
+All whimsy were the borogoves,
       And the mome raths outgrabe.
 
 “Beware the Jabberwock, my son!
