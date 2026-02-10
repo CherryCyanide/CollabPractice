@@ -1,4 +1,4 @@
-Twas brilliant, and the slithy toves
+Twas brilliant, and the gliny gloves...
       Did gyre and gimble in the wabe:
 All mimsy were the borogoves,
       And the mome raths outgrabe.
