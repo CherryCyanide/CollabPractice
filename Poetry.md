@@ -1,5 +1,5 @@
-Twas brilliant, and the slimy gloves...
-      Did gyre and gimble in the wabe:
+Twas brilliant, and the gliny gloves...
+      Did jyre and gimble in the wabe :3c
 All mimsy were the borogoves,
       And the mome raths outgrabe.
 
