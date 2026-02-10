@@ -4,7 +4,7 @@ All mimsy were the borogoves,
       And the mome raths outgrabe.
 
 “Beware the Jabberwock, my son!
-      The jaws that bite, the claws that catch!
+      The jaws that bite, the claws that snatch!
 Beware the Jubjub bird, and shun
       The frumious Bandersnatch!”
 
@@ -13,7 +13,7 @@ He took his vorpal sword in hand;
 So rested he by the Tumtum tree
       And stood awhile in thought.
 
-And, as in uffish thought he stood,
+And, as in huffish thought he stood,
       The Jabberwock, with eyes of flame,
 Came whiffling through the tulgey wood,
       And burbled as it came!
